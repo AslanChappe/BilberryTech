@@ -2,4 +2,4 @@
 
 August 2023, from Aslan Chappe
 
-Best model file : https://we.tl/t-CCkj4SGDuw
+Best model file : https://drive.google.com/file/d/1i4C2VKa5zl-nxBO5ngp8AtN1EMLhg6gN/view
